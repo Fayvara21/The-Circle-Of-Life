@@ -8,13 +8,13 @@ but what if i told you the world mankind built is lacking in something that used
 something that dictates our very futur, something that was the basis of every invention imaginable.
 
 The Circle.
-Between the planet we live in and a simple bubble of soap, it's the most energy efficient shape that space can create.
-we feel safe when its borders are around us, we feel joy when we see it spin.
+Between the planet, we live in and a simple bubble of soap, it's the most energy-efficient shape that space can create.
+we feel safe when its borders are around us, we feel joy when we see it spinning.
 when we see a circle, we think about something nice and positive, it reminds us of the simplicity of this world.
-can you say the same about isosceles triangles? it's both weak and threatening. screw you triangle, you're useless.
+can you say the same about isosceles triangles? it's both weak and threatening. screw you, triangle. you're useless.
 
-By making this gorgeous piece of art, I realised that the most simple way to draw a face is also the most simple way the universe was created.
-Every drawing is the creation of a new universe. But what if i wasn't the only one who could build on it's fundations?
+By making this gorgeous piece of art, I realized that the most simple way to draw a face is also the most simple way the universe was created.
+Every drawing is the creation of a new universe. But what if I wasn't the only one who could build on its foundations?
 If you were to acquire The Circle, you would be the very first human to achieve this unimaginable feat.
 
 Thank you.
