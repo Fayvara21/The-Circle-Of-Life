@@ -1,11 +1,11 @@
 # The-Circle-Of-Life
 
-Wherever we look at, whatever we imagine, everything revolves around a geometrical shape.
+Wherever we look, whatever we imagine, everything revolves around a geometrical shape.
 they built our world by making the wilderness a place of comfort and security,
-they allowed us to achieve the unthinkabe; we went to space, we cloned humans, we even made information travel faster than the speed of sound.
-every shape made a difference in that quest to the impossible, 
+they allowed us to achieve the unthinkable; we went to space, we cloned humans, and we even made information travel faster than the speed of sound.
+every shape made a difference in that quest for the impossible, 
 but what if i told you the world mankind built is lacking in something that used to be fundamental in our universe, 
-something that dictates our very futur, something that was the basis of every invention imaginable.
+something that dictates our very future, something that was the basis of every invention imaginable.
 
 The Circle.
 Between the planet, we live in and a simple bubble of soap, it's the most energy-efficient shape that space can create.
